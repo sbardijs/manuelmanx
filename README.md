@@ -1,6 +1,4 @@
+💻 Senior Full-stack Developer
+🎯 Goal oriented
 🧠 Mind Player
-
-> sbardi.fx
-
-
-#### manuel.tardivo.lavoro@gmail.com
+[manuel.tardivo.pro](https://manuel.tardivo.pro)
